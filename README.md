@@ -1,2 +1,2 @@
 # wallpaper-collection
-my wallpaper colection from unsplash, pexels, and pixabay
+my wallpaper collection from unsplash, pexels, and pixabay
